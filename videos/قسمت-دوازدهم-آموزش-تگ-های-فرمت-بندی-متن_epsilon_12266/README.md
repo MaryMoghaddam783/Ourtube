@@ -1,0 +1,33 @@
+# قسمت-دوازدهم-آموزش-تگ-های-فرمت-بندی-متن
+
+> 🆓 **نسخه رایگان** - کیفیت 360p
+> برای کیفیت بالاتر، MP3، زیرنویس و رمزگذاری به [workflow شماره 01](../../actions) بروید
+
+<div align="center">
+  <picture>
+    <img src="thumbnail.jpg" width="250" />
+  </picture>
+</div>
+
+---
+
+## Video Information
+
+| Property | Value |
+|----------|-------|
+| **Video Name** | `قسمت-دوازدهم-آموزش-تگ-های-فرمت-بندی-متن` |
+| **Original Link** | [YouTube Video](https://www.youtube.com/watch?v=EbV0F5liD54) |
+| **Total Size** | **18.31 MB** |
+| **Quality** | **360p (Free)** |
+
+---
+
+## Download Link
+
+| # | File | Link |
+|---|------|------|
+| 1 | `قسمت-دوازدهم-آموزش-تگ-های-فرمت-بندی-متن_epsilon_12266.mp4` | [Download](https://raw.githubusercontent.com/MaryMoghaddam783/Ourtube/main/videos/%D9%82%D8%B3%D9%85%D8%AA-%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%D9%85-%D8%A2%D9%85%D9%88%D8%B2%D8%B4-%D8%AA%DA%AF-%D9%87%D8%A7%DB%8C-%D9%81%D8%B1%D9%85%D8%AA-%D8%A8%D9%86%D8%AF%DB%8C-%D9%85%D8%AA%D9%86_epsilon_12266/%D9%82%D8%B3%D9%85%D8%AA-%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%D9%85-%D8%A2%D9%85%D9%88%D8%B2%D8%B4-%D8%AA%DA%AF-%D9%87%D8%A7%DB%8C-%D9%81%D8%B1%D9%85%D8%AA-%D8%A8%D9%86%D8%AF%DB%8C-%D9%85%D8%AA%D9%86_epsilon_12266.mp4) |
+
+---
+
+*🆓 Free Version - [avasam.ir](https://avasam.ir)*
